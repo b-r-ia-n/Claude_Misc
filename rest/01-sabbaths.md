@@ -40,9 +40,7 @@ Seneca, as quoted by Augustine, said the Jews lose a seventh part of their lives
 
 The seventh year is the *shmita*. The land is left unsown and its produce is ownerless. At its close, debts are released. The sage Hillel, seeing that people stopped lending as the seventh year approached, devised the *prosbul*, which transfers a loan to the court so that it survives the release.
 
-In 1889, ahead of a sabbatical year, rabbis permitted the Jewish farmers of Palestine to sell their land to non-Jews for its duration. The arrangement is still debated.
-
-According to Leviticus, if the people did not let the land rest, they would be scattered, and the land would enjoy its sabbaths while it lay desolate. Chronicles says the seventy years of Babylonian exile were the land keeping the sabbaths it was owed.
+According to Leviticus, if the people did not let the land rest, they would be scattered, and the land would enjoy its sabbaths while it lay desolate.
 
 After seven sevens of years comes the Jubilee, in which land returns to its original families and slaves go free. "Proclaim liberty throughout all the land unto all the inhabitants thereof" is from the Jubilee passage. It is cast on the Liberty Bell, which is cracked.
 
@@ -58,17 +56,11 @@ Benedict's Rule assigns monks seven daytime offices and one at night: "Seven tim
 
 The Rule also says idleness is the enemy of the soul. On Sundays the monks are to read. A monk too negligent or lazy to read is to be given work.
 
-In Han dynasty China officials received a day off every five days, called *xiumu*, rest and hair-washing.
-
-The French Revolutionary calendar replaced the week with a ten-day *décade*. The day of rest came every tenth day.
-
 On October 1, 1929, the Soviet Union began the *nepreryvka*, the continuous week: four days of work and one off, with each worker assigned a color, and each color a different day of rest. The factories would never stop. Husbands and wives with different colors did not see each other. In 1931 a six-day week replaced it, with a common day off. In 1940 the seven-day week returned.
 
 Vishnu sleeps on the coils of the serpent Shesha, whose other name is Ananta, the endless, floating on the ocean between the dissolution of one world and the making of the next. From his navel grows a lotus, and on the lotus sits Brahma, who will make the world again.
 
 Every year, it is said, Vishnu also sleeps for four months, from the eleventh day of the bright half of Ashadha to the eleventh of Kartika. This is Chaturmas, the rainy season. Weddings are postponed. Jain monks stop traveling and stay in one place, so as not to crush the small creatures that come out with the rains. On the day he wakes, in many households, a tulsi plant is married to him.
-
-In some tellings he spends those months in the underworld, as gatekeeper to the demon king Bali, to whom he had promised it.
 
 In Bali, on the day after the dark moon of the ninth month, there is Nyepi. The night before, villages carry monstrous effigies, *ogoh-ogoh*, through the streets, then burn them. The next day there is no fire and no light, no work, no travel, no entertainment. The demons, returning, are supposed to find the island empty and pass on.
 

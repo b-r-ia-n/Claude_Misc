@@ -6,7 +6,7 @@ The Greeks did the same. Business was *ascholia*, unleisure. Their word for leis
 
 Aristotle wrote that we are busy in order to have leisure, as we make war in order to have peace.
 
-Cicero reports that Scipio Africanus used to say he was never less idle than when he was at leisure. Cicero wrote this down during a leisure of his own, one he had not chosen: Caesar's dictatorship had left him with nothing to do.
+Cicero reports that Scipio Africanus used to say he was never less idle than when he was at leisure. Cicero wrote this down during a leisure of his own, one he had not chosen: the state of the Republic had left him with nothing to do.
 
 ---
 
@@ -76,7 +76,7 @@ In Japan there is a word, *inemuri*, "to be present while asleep." To fall aslee
 
 ---
 
-In 1859 Ivan Goncharov published *Oblomov*, a novel whose hero spends the first fifty pages trying to get out of bed. The same year the critic Nikolai Dobrolyubov published an essay asking what "Oblomovism" was. In 1922 Lenin complained that Russia had made three revolutions and the Oblomovs were still there.
+In 1859 Ivan Goncharov published *Oblomov*, a novel whose hero spends most of the first part trying to get out of bed. The same year the critic Nikolai Dobrolyubov published an essay asking what "Oblomovism" was. In 1922 Lenin complained that Russia had made three revolutions and the Oblomovs were still there.
 
 ---
 
@@ -84,4 +84,4 @@ On October 17, 1492, Columbus noted that the people of the islands slept in nets
 
 ---
 
-In Oblomov's dream of the estate where he was a child, the whole house sleeps after the midday meal: the master, the mistress, the aunts, the servants in the passage, the coachman in the stable, the dog in its kennel. Only the boy is awake. He walks out into the garden. The sun has not moved.
+In Oblomov's dream of the estate where he was a child, the whole house sleeps after the midday meal: the master and the mistress, the aunts, the visitors, the servants. Only the boy is awake. He walks out into the garden. The sun has not moved.
